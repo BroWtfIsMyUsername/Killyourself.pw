@@ -1,2 +1,1 @@
-# Killyourself.pw
-My future 
+This will be my future site feel free to use.
