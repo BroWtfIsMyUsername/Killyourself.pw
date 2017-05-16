@@ -1,0 +1,2 @@
+# Killyourself.pw
+My future 
